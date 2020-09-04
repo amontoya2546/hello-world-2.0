@@ -1,2 +1,5 @@
 # hello-world-2.0
-just a second try!
+
+Hola Amigos!
+Chief keef is the best rapper alive and the king of Chicity.
+I am a gorilla coupe. I will pull up to the zoo.
